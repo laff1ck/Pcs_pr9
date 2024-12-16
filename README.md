@@ -4,6 +4,10 @@
 # Практическая работа #8
 
 
-https://github.com/user-attachments/assets/2de2d1d4-d532-4a20-aacf-f1ed32ef064e
+
+https://github.com/user-attachments/assets/1c78142b-5e89-4571-b121-5adc9b34e4ec
+
+
+
 ![image](https://github.com/user-attachments/assets/e1fb3a61-a868-45d6-a76a-82f611a402af)
 
